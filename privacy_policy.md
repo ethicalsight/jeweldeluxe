@@ -1,5 +1,5 @@
-# Jewel Deluxe Privacy Policy
-
+# Privacy Policy
+## Jewel Deluxe by Ethical Sight
 
 ### Introduction
 
