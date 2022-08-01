@@ -1,4 +1,4 @@
-# Privacy Policy
+# Jewel Deluxe Privacy Policy
 
 
 ### Introduction
